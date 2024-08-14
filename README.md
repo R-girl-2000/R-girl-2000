@@ -7,6 +7,3 @@
 - 🌱 I’m currently learning R
 
 - 😄 Pronouns: She/Her
-
-- ⚡ Fun fact: I study nutrition and chronic pain for work.
-
